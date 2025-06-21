@@ -1,4 +1,4 @@
-![Animated Background](https://i.imgur.com/ECZKmlO.gif)
+![Animated Background](https://cdn.discordapp.com/avatars/1363724949939814423/2ad2439aa5275bf42e24b8932220dc41.png?size=1024)
 
 
 <p align="center">
